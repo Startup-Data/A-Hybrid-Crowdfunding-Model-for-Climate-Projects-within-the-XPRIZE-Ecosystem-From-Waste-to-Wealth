@@ -1,4 +1,6 @@
-[# A-Hybrid-Crowdfunding-Model-for-Climate-Projects-within-the-XPRIZE-Ecosystem-From-Waste-to-Wealth](https://chatgpt.com/s/t_6888eac667708191b28c48035bef73aa
+![enter image description here](https://i.sstatic.net/TECPkBJj.jpg)
+
+https://chatgpt.com/s/t_6888eac667708191b28c48035bef73aa
 
 
 
@@ -165,6 +167,4 @@ https://app.presentations.ai/view/wBfwz5TW56
 ## فرمت پی دی آف طرح کلی اون :
 ![enter image description here](https://i.sstatic.net/F0b8DPJV.jpg)
 
-https://g.co/gemini/share/0c67ef9c68bf)
-
-https://rentry.co/xkmhti37
+https://g.co/gemini/share/0c67ef9c68bf
